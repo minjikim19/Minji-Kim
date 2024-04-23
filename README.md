@@ -4,6 +4,7 @@
 - 💬I did an internship at [SurveyMonkey](https://www.surveymonkey.com/), [Teck Resources](https://www.teck.com/) and [TransAlta](https://transalta.com/)
 - 📫Please reach out to me through [email](mailto:%20minjikm19@gmail.com) or [linkedin](https://www.linkedin.com/in/minji-kim19/) if you want to talk😄
 - 🌏 I love traveling and volunteering!
+- ⚡ Checkout my [website](https://minjikim19.github.io/minji-website/)!
 
 
 ### 💪 Skills
